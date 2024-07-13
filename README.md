@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @naptimedoe
 - 👀 I’m interested in languages, football, fitness, and learning
 - 🌱 I’m currently learning to code, AI, and immigration law
-- 💞️ I’m looking to collaborate on coding, digital marketing, AI, and sport related projects 
+- 💞️ I’m looking to collaborate on coding, macros, digital marketing, AI, and sport related projects 
 - 📫 How to reach me best is instagram @naptimedoe
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I made Cristiano Ronaldo cut his hair
